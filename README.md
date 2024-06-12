@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Omarnewdev
-- 👀 I’m interested in ...
+- 👀 I’m interested in all about tecnhology speacially in the depp programation.
 - 🌱 I’m currently learning all I can about the programation, speacilly C/C++
 - 💞️ I’m looking to collaborate on all the projects that I can.
 - 📫 How to reach me erlanomararcevasquez@gmail.com
